@@ -47,6 +47,8 @@
 
 ## Output:
 ![WhatsApp Image 2025-04-22 at 11 08 36_c063905c](https://github.com/user-attachments/assets/90632cec-ece2-4faa-8f3a-a117703dab17)
+![WhatsApp Image 2025-04-22 at 11 18 42_a2ede8f5](https://github.com/user-attachments/assets/26e35c6d-7713-4296-8218-d10ed21b51dd)
+
 
 
 ### Name: K.DEENATHAYALAN
